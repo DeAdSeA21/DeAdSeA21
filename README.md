@@ -1,6 +1,6 @@
 # About me
 
-### I know my username is ~~DeAdSeA21~~ but like just call Shikaine please
+### I know my username is ~~DeAdSeA21~~ but like just call me Shikaine please
 
 ## Education
 I'm working on getting my bachelors in both Computer Science and Computer Engineering right now. I didn't really want to go to college but was forced so yeah.
